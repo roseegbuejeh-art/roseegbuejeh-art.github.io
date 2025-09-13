@@ -39,24 +39,4 @@ At Homify, I delivered content that blended **creativity, marketing strategy, an
 📧 **Sample Work:**  
 *"Week 4: Tattoos and Blood Donation – What You Need to Know"*  
 [Read the full email here ➝](TattooCampaign_Email_June2023.md)
-## Stride Radio – Radio Presenter & Voice Over Artist (March 2019 – September 2020)
 
-**Role:** Host, Scriptwriter, Voice Over Artist, and Content Creator  
-**Focus:** Talk shows, scriptwriting, guest coordination, and advertising campaigns  
-
-During my time at Stride Radio, I brought creativity and initiative to every aspect of the station:  
-
-- Hosted and **scripted my own talk show, “Feminine Corner”**, focusing on feminism and social topics, engaging a diverse audience through thoughtful discussions  
-- Wrote scripts for the **Lunch Hour Show** alongside other presenters, ensuring smooth delivery and engaging live content  
-- Independently coordinated and interviewed guests, expanding show variety and listener engagement  
-- Developed **advertising copy** for clients including **Intense Health Pharmacy** and **FFO Eatery**, translating brand messages into persuasive and compelling content  
-- Provided **voice-over services** for these campaigns, ensuring professional and consistent audio delivery for radio spots  
-- Secured **paid advertisements**, contributing to station revenue growth  
-- Recognized as **Presenter of the Month (June 2020)** for bringing in the highest number of paid ads and increasing station visibility  
-
-📻 **Sample Work:**  
-While recordings are not publicly available, my strategies in scriptwriting, advertising, and show hosting significantly boosted listener engagement, advertiser partnerships, and overall station impact.
-
-### Promotional Flyers – Feminine Corner
-
-![Feminine Corner Flyer 1](Flyers/FeminineCorner_Flyer1.jpg)
