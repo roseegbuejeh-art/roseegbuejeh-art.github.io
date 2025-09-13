@@ -58,6 +58,3 @@ During my time at Stride Radio, I brought creativity and initiative to every asp
 📻 **Sample Work:**  
 While recordings are not publicly available, my strategies in scriptwriting, advertising, and show hosting significantly boosted listener engagement, advertiser partnerships, and overall station impact.
 
-### Promotional Flyers – Feminine Corner
-
-![Feminine Corner Flyer](Flyers/FeminineCorner_Flyer1.jpg)
