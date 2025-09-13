@@ -196,3 +196,9 @@ I also write creatively, producing short stories and poetry. This demonstrates v
 - **Interpersonal & Relationship-Building Skills** – Developed strong relationships with clients, guests, and collaborators to ensure smooth project execution and audience engagement.  
 - **Cross-Regional Content Adaptation** – Created content tailored to diverse regions, including Europe, South America, and Asia, ensuring cultural relevance and audience engagement.  
 - **Internal & External Communication** – Partnered with editors, designers, and SEO teams to align messaging at Homify; built audience-facing communication strategies at Stride Radio.
+
+### Certifications
+
+**Google Project Management Certificate (In Progress)**  
+- Completed: Module 1 – Introduction to Project Management  
+- Focus & Skills Gained: Agile, Waterfall, Lean, Six Sigma, OKR, Kanban, Scrum
