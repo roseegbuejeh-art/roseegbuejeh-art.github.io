@@ -58,3 +58,23 @@ During my time at Stride Radio, I brought creativity and initiative to every asp
 📻 **Sample Work:**  
 While recordings are not publicly available, my strategies in scriptwriting, advertising, and show hosting significantly boosted listener engagement, advertiser partnerships, and overall station impact.
 
+---
+
+### Commonwealth Short Story Submission – *Letters, Cupcakes & Flowers* (2021)
+
+**Role & Focus:**  
+Creative Writer | Storytelling | Narrative Voice | Cultural Perspective  
+
+**Overview:**  
+In 2021, I wrote and submitted an original short story titled *Letters, Cupcakes & Flowers* to the Commonwealth Short Story Prize. The story follows Rabi’ah, a young girl in Northern Nigeria, navigating family expectations, societal pressures, and her aspirations for education and freedom.  
+
+Through this piece, I showcased:  
+- **Creative storytelling:** Crafting an immersive first-person perspective with a distinctive, age-appropriate narrative voice.  
+- **Cultural literacy:** Incorporating Hausa traditions and local context authentically.  
+- **Character development:** Developing a strong, memorable protagonist whose thoughts and emotions drive the narrative.  
+- **Empathy & emotional depth:** Conveying complex themes like gender inequality, resilience, and imagination through a child’s perspective.  
+
+**Outcome:**  
+Although the story was not shortlisted, it demonstrates my ability to produce compelling creative writing and original narratives that communicate cultural nuance and emotional depth.  
+
+**Link to Story:** [Read *Letters, Cupcakes & Flowers*](https://tr.ee/ktDyxeJQZr)
