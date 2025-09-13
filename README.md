@@ -64,7 +64,9 @@ While recordings are not publicly available, my strategies in scriptwriting, adv
 
 Showcasing a range of my creative and professional writing, including short stories, articles, blog posts, DIY guides, email campaigns, and poetry.
 
-## 1. Commonwealth Short Story Submission – Letters, Cupcakes & Flowers (2021)
+---
+
+## 1. Commonwealth Short Story Submission – *Letters, Cupcakes & Flowers* (2021)
 
 **Role & Focus:**  
 Creative Writer | Storytelling | Narrative Voice | Cultural Perspective
@@ -72,7 +74,7 @@ Creative Writer | Storytelling | Narrative Voice | Cultural Perspective
 **Overview:**  
 In 2021, I wrote and submitted an original short story titled *Letters, Cupcakes & Flowers* to the Commonwealth Short Story Prize. The story follows Rabi’ah, a young girl in Northern Nigeria, navigating family expectations, societal pressures, and her aspirations for education and freedom.
 
-Through this piece, I showcased:  
+**Skills Demonstrated:**  
 - **Creative storytelling:** Crafting an immersive first-person perspective with a distinctive, age-appropriate narrative voice.  
 - **Cultural literacy:** Incorporating Hausa traditions and local context authentically.  
 - **Character development:** Developing a strong, memorable protagonist whose thoughts and emotions drive the narrative.  
@@ -83,21 +85,38 @@ Although the story was not shortlisted, it demonstrates my ability to produce co
 
 **Link to Story:** [Read Letters, Cupcakes & Flowers](https://tr.ee/ktDyxeJQZr)
 
+---
+
 ## 2. Articles & Blog Posts
+
 I have produced a variety of articles and blog posts covering lifestyle, brand advertising, and digital marketing for Homify. This includes over 91 ideabooks with curated content for brands and lifestyle topics.  
-**Sample Link:** [View Ideabooks on Homify](https://www.homify.com/ideabooks/)
+
+**Sample Link:** [View Ideabooks on Homify](https://www.homify.com/professionals/8409749/rose-egbuejeh/ideabooks)
+
+---
 
 ## 3. DIY Articles
+
 I wrote practical DIY guides for Homify, helping readers engage with creative projects at home. These pieces achieved strong reader engagement and demonstrated my ability to simplify and present content clearly.  
+
 **Sample DIY Articles:**  
 - [How to Make a Hand Fan – 8 DIY Tutorial Guides](https://www.homify.co.uk/diy/16711/how-to-make-a-hand-fan-8-diy-tutorial-guides)  
 - [25 Simplest DIY Step-by-Step Guide on How to Make Sea Glass](https://www.homify.co.uk/diy/22563/25-simplest-diy-step-by-step-guide-on-how-to-make-a-sea-glass)
 
+---
+
 ## 4. Email Campaigns
+
 I conceptualized and executed email campaigns for brands, including Unwanted Wants Body Art, driving measurable results and increased customer engagement.  
+
 **Highlight:**  
 - Designed a discount-driven campaign in June 2023, offering 20% off tattoo sessions. The campaign increased client bookings and engagement with weekly newsletters.
 
-## 5. Creative Writing
+---
+
+## 5. Creative Writing & Poetry
+
 I also write creatively, producing short stories and poetry. This demonstrates versatility in storytelling, tone, and audience engagement.  
-**Poems Portfolio:** [View over 50 poems on Instagram](https://www.instagram.com/rose_rigan/)
+
+**Poetry Portfolio:** [View over 50 poems on Instagram](https://www.instagram.com/rose_rigan/)
+
