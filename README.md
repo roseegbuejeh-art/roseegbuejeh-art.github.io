@@ -1,5 +1,7 @@
 # roseegbuejeh-art.github.io
 Where words meet strategy — portfolio of copywriting, advertising, storytelling, and communication projects.
+## Work Experience
+
 ## Homify – Creative & Marketing Copywriting  
 *Content Writer | April 2021 – June 2025*  
 
