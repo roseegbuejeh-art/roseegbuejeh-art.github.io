@@ -25,3 +25,17 @@ At Homify, I delivered content that blended **creativity, marketing strategy, an
   - ✓ Produced relatable lifestyle content that supported Homify’s advertising initiatives  
   - ✓ Boosted engagement by addressing trending and everyday home challenges  
   - ✓ Increased relevance of Homify content during the rise of remote work culture  
+## Tattoo Campaign – Unwanted Wants Body Art (June 2023)
+
+**Role:** Campaign Copywriter  
+**Focus:** Email marketing & discount campaign strategy  
+
+- Developed and scheduled **bi-weekly newsletters** to engage a tattoo-focused audience  
+- Crafted informative and creative content on topics like tattoo care and lifestyle  
+- Designed and implemented a **June 2023 discount campaign** (20% off one-session tattoos) that boosted client bookings  
+- Introduced **tiered discounts** for subscribers who engaged with the weekly emails, increasing repeat client interactions  
+- Balanced promotional messaging with educational content, building trust and authority for the brand  
+
+📧 **Sample Work:**  
+*"Week 4: Tattoos and Blood Donation – What You Need to Know"*  
+[Read the full email here ➝](TattooCampaign_Email_June2023.md)
