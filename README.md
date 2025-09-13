@@ -184,3 +184,15 @@ I also write creatively, producing short stories and poetry. This demonstrates v
 - [Instagram Highlight of Feminine Corner](https://www.instagram.com/p/CCtJ2HMDLI2/?utm_source=ig_web_copy_link&igsh=M2Z4MXQxN2E3eXg1)  
 - [Staff of the Month Flyer – June 2020](https://www.instagram.com/p/CDdw9HBjXy6/?utm_source=ig_web_copy_link)  
 - [Short IG Video – Hosting Feminine Corner](https://www.instagram.com/p/CCbLFitDKaY/?utm_source=ig_web_copy_link)
+
+## Technical & Professional Skills
+
+- **Strategic Communication** – Produced press releases, newsletters, and digital campaigns at Homify; developed audience engagement strategies at Stride Radio.  
+- **Content Development & Storytelling** – Created brand-consistent copy, marketing campaigns, and product content at Unwanted Wants Body Art; tailored content to fit audiences across Europe, South America, and Asia.  
+- **Project & Campaign Management** – Coordinated editorial workflows and marketing campaigns at Homify; executed promotional campaigns and stakeholder activities for body art projects. 
+- **Digital Tools & Platforms** – Applied CMS systems, SEO practices, and social media tools at Homify; leveraged analytics to adapt communication strategies for stronger impact.  
+- **Creativity & Innovation** – Conceptualized engaging campaigns, fresh story angles, and original content formats to resonate with diverse audiences.  
+- **Adaptation & Problem Solving** – Adjusted campaigns and content strategies based on audience feedback, analytics, and regional preferences.  
+- **Interpersonal & Relationship-Building Skills** – Developed strong relationships with clients, guests, and collaborators to ensure smooth project execution and audience engagement.  
+- **Cross-Regional Content Adaptation** – Created content tailored to diverse regions, including Europe, South America, and Asia, ensuring cultural relevance and audience engagement.  
+- **Internal & External Communication** – Partnered with editors, designers, and SEO teams to align messaging at Homify; built audience-facing communication strategies at Stride Radio.
