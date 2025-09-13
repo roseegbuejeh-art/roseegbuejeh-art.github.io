@@ -120,3 +120,67 @@ I also write creatively, producing short stories and poetry. This demonstrates v
 
 **Poetry Portfolio:** [View over 50 poems on Instagram](https://www.instagram.com/rose_rigan/)
 
+## Projects & Campaigns
+
+### Homify – Content Creation & Digital Marketing (April 2021 – June 2025)  
+**Role:** Content Creator | Copywriter | Digital Marketer  
+
+**Objective:** Develop engaging content for interior designers and lifestyle brands, increasing visibility and audience engagement.  
+
+**Strategy / Actions:**  
+- Managed a **comprehensive ideabook of 91 articles**, covering **DIY, lifestyle, and brand advertising campaigns**.  
+- Focused on **copywriting, digital marketing, and audience engagement**, creating content that enhanced client visibility and brand reach.  
+
+**Outcome / Impact:**  
+- Conceptualized and executed **brand campaigns** for interior designers, generating increased engagement and exposure.  
+- Developed **DIY guides and lifestyle articles** that resonated with readers, showcasing creativity and attention to detail.  
+
+**View full Ideabook:** [Homify Ideabooks](https://www.homify.com/professionals/8409749/rose-egbuejeh/ideabooks)  
+
+**Selected standout pieces:**  
+- DIY: ["How to Make a Hand Fan – 8 DIY Tutorial Guides"](https://www.homify.co.uk/diy/16711/how-to-make-a-hand-fan-8-diy-tutorial-guides)  
+- Lifestyle: ["10 Most Convenient Tips to Create Your Perfect Home Office"](https://www.homify.com/ideabooks/9143121/10-most-convenient-and-simple-tips-to-use-to-create-your-perfect-home-office)  
+
+---
+
+### Unwanted Wants Body Art – Email Marketing & Campaign Strategy (2023)  
+**Role:** Content Strategist | Campaign Manager | Copywriter  
+
+**Objective:** Maintain client engagement and drive bookings during periods of low customer return.  
+
+**Strategy / Actions:**  
+- Developed a **bi-weekly email strategy** as a consistent reminder and interaction touchpoint for clients.  
+- Designed and wrote engaging content for campaigns focused on tattoo aftercare, promotions, and tips.  
+- Coordinated campaign scheduling and execution to ensure timely delivery and audience engagement.  
+
+**Sample Campaign Emails:**  
+- Week 1: Tattoo Aftercare  
+- Week 5: Tattoo Placement & Significance  
+- Week 9: Importance of Aftercare  
+
+**Outcome / Impact:**  
+- Strengthened client interaction and loyalty through regular communication.  
+- Supported a **noticeable increase in bookings** and client satisfaction during low-return periods.  
+- Demonstrated ability to craft **strategic, results-driven email campaigns**.  
+
+---
+
+### Stride Radio – Talk Show Hosting & Content Production (2020)  
+**Role:** Radio Presenter | Scriptwriter | Voice-over Artist | Guest Coordinator  
+
+**Objective:** Host engaging radio shows and deliver promotional campaigns that attract listeners and advertisers.  
+
+**Strategy / Actions:**  
+- Hosted my own talk show, **Feminine Corner**, focusing on feminism and social topics.  
+- Co-hosted the **Lunch Hour Show**, scripting content collaboratively.  
+- Produced advertisement voice-overs for brands including **Intense Health Pharmacy** and **FFO Eatery**.  
+- Coordinated guest appearances and interviews, demonstrating strong **interpersonal and networking skills** to secure engaging guests.  
+
+**Outcome / Impact:**  
+- Won **Presenter of the Month – June 2020**, generating multiple paid advertisements for the station.  
+- Increased audience engagement and delivered high-quality content consistently.  
+
+**Supporting Materials / Links:**  
+- [Instagram Highlight of Feminine Corner](https://www.instagram.com/p/CCtJ2HMDLI2/?utm_source=ig_web_copy_link&igsh=M2Z4MXQxN2E3eXg1)  
+- [Staff of the Month Flyer – June 2020](https://www.instagram.com/p/CDdw9HBjXy6/?utm_source=ig_web_copy_link)  
+- [Short IG Video – Hosting Feminine Corner](https://www.instagram.com/p/CCbLFitDKaY/?utm_source=ig_web_copy_link)
