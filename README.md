@@ -202,3 +202,10 @@ I also write creatively, producing short stories and poetry. This demonstrates v
 **Google Project Management Certificate (In Progress)**  
 - Completed: Module 1 – Introduction to Project Management  
 - Focus & Skills Gained: Agile, Waterfall, Lean, Six Sigma, OKR, Kanban, Scrum
+
+## Contact Me
+
+I’m always open to exciting opportunities, collaborations, or just a chat about communications, writing, and marketing. Let’s connect!
+
+- **Email:** [roseegbuejeh@gmail.com](mailto:roseegbuejeh@gmail.com)  
+- **LinkedIn:** [https://www.linkedin.com/in/egbuejeh-rose-198613209/](https://www.linkedin.com/in/egbuejeh-rose-198613209/)
