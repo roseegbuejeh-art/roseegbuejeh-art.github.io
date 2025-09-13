@@ -41,6 +41,8 @@ At Homify, I delivered content that blended **creativity, marketing strategy, an
 [Read the full email here ➝](TattooCampaign_Email_June2023.md)
 ## Stride Radio – Radio Presenter & Voice Over Artist (March 2019 – September 2020)
 
+## Stride Radio – Radio Presenter & Voice Over Artist (March 2019 – September 2020)
+
 **Role:** Host, Scriptwriter, Voice Over Artist, and Content Creator  
 **Focus:** Talk shows, scriptwriting, guest coordination, and advertising campaigns  
 
