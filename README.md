@@ -22,8 +22,8 @@ At Homify, I delivered content that blended **creativity, marketing strategy, an
   - ✓ Contributed to positive audience perception of partner design studios  
 
 ### Lifestyle & Advertising (Homify features)  
-- [The 10 Organisational Mistakes That Happen Frequently in the House](https://www.homify.com/ideabooks/9041713/the-10-organisational-mistakes-that-happen-frequently-in-the-house)  
-- [10 Convenient and Simple Tips to Create Your Perfect Home Office](https://www.homify.com/ideabooks/9143121/10-most-convenient-and-simple-tips-to-use-to-create-your-perfect-home-office)  
+- [The 10 Organisational Mistakes That Happen Frequently in the House](https://www.homify.co.uk/ideabooks/9041713/the-10-organisational-mistakes-that-happen-frequently-in-the-house)  
+- [10 Convenient and Simple Tips to Create Your Perfect Home Office](https://www.homify.co.uk/ideabooks/9143121/10-most-convenient-and-simple-tips-to-use-to-create-your-perfect-home-office)  
   - ✓ Produced relatable lifestyle content that supported Homify’s advertising initiatives  
   - ✓ Boosted engagement by addressing trending and everyday home challenges  
   - ✓ Increased relevance of Homify content during the rise of remote work culture  
