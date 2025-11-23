@@ -40,7 +40,7 @@ At Homify, I delivered content that blended **creativity, marketing strategy, an
 
 📧 **Sample Work:**  
 *"Week 4: Tattoos and Blood Donation – What You Need to Know"*  
-[Read the full email here ➝](TattooCampaign_Email_June2023.md)
+[Read the full email here ➝]https://github.com/roseegbuejeh-art/roseegbuejeh-art.github.io/blob/main/TattooCampaign_Email_June2023.md
 
 ## Stride Radio – Radio Presenter & Voice Over Artist (March 2019 – September 2020)
 
