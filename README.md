@@ -14,13 +14,6 @@ At Homify, I delivered content that blended **creativity, marketing strategy, an
   - ✓ Consistently attracted readers interested in craft-based content  
   - ✓ Helped position Homify as a hub for hands-on, creative learning  
 
-### Digital Marketing & Copywriting (brand collaboration)  
-- [An Interior Designer’s Perspective – CS Designs](https://www.homify.com/ideabooks/9734258/an-interior-designer-s-perspective-on-creating-the-perfect-living-environment-6-reasons-why-you-should-hire-cs-designs)  
-- [A Tour of This Magnificent Renovation – Arte dell’arbitare](https://www.homify.com/ideabooks/9610772/a-tour-of-this-magnificent-renovation-of-a-village-into-luxury-accommodation)  
-  - ✓ Delivered marketing-driven articles that boosted brand storytelling for design clients  
-  - ✓ Enhanced visibility of CS Designs and Arte dell’arbitare within Homify’s global platform  
-  - ✓ Contributed to positive audience perception of partner design studios  
-
 ### Lifestyle & Advertising (Homify features)  
 - [The 10 Organisational Mistakes That Happen Frequently in the House](https://www.homify.co.uk/ideabooks/9041713/the-10-organisational-mistakes-that-happen-frequently-in-the-house)  
 - [10 Convenient and Simple Tips to Create Your Perfect Home Office](https://www.homify.co.uk/ideabooks/9143121/10-most-convenient-and-simple-tips-to-use-to-create-your-perfect-home-office)  
